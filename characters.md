@@ -150,7 +150,7 @@
 
 ### 猎人
 
-![猎人](https://lanke.fun/wp-content/uploads/2021/03/%E7%8C%8E%E4%BA%BA.png "猎人")
+![猎人](https://lanke.fun/wp-content/uploads/2021/03/%E7%8C%8E%E4%BA%BA-150x150.png "猎人")
 
 *枪在手，跟我走！*
 
